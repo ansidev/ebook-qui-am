@@ -16,7 +16,7 @@ Vì có nhiều lý thuyết bất cập khác nhau đã khiến cho một số 
 
 ## Kiến thức siêu nhiên, trí lực và thể lực phi thường của người bị quỉ ám
 
-Trong khi đang bị quỉ ám, nhiều người tỏ ra có một kiến thức đặc biệt thông thường không có được. Ma quỉ hay tà linh kiểm soát thân xác nạn nhân hiển nhiên chính là cơ nguyên của tri thức cũng như thể lực siêu nhân đó. Trong khi bị quỉ ám, nhiều người nhận ra Chúa Giê-xu là Con Ðức Chúa Trời và bày tỏ thái độ ghét lẫn sợ hãi Ngài \(Xem Mac [1:23-26](https://www.bible.com/bible/193/MRK.1.23-26.VB1925), [5:1-20](https://www.bible.com/bible/193/MRK.5.1-20.VB1925)\)
+Trong khi đang bị quỉ ám, nhiều người tỏ ra có một kiến thức đặc biệt thông thường không có được. Ma quỉ hay tà linh kiểm soát thân xác nạn nhân hiển nhiên chính là cơ nguyên của tri thức cũng như thể lực siêu nhân đó. Trong khi bị quỉ ám, nhiều người nhận ra Chúa Giê-xu là Con Ðức Chúa Trời và bày tỏ thái độ ghét lẫn sợ hãi Ngài \(Xem Mác [1:23-26](https://www.bible.com/bible/193/MRK.1.23-26.VB1925), [5:1-20](https://www.bible.com/bible/193/MRK.5.1-20.VB1925)\)
 
 Trong Phúc Âm [Ma-thi-ơ 12:43-45](https://www.bible.com/bible/193/MAT.12.43-45.VB1925), Chúa Giê-xu đã có lần đề cập đến tình trạng bị quỉ ám khi Ngài dạy rằng: "Khi tà ma ra khỏi một người, thì nó đi đến nơi khô khan kiếm chỗ nghỉ, nhưng kiếm không được; rồi nó nghĩ rằng: Ta sẽ trở về nhà ta mà ta mới ra khỏi; khi trở về, thấy nhà không,quét sạch và sửa soạn tử tế. Nó bèn lại đi, đem về bảy quỉ khác dữ hơn nó, cùng vào nhà đó mà ở; vậy, số phận người ấy sau lại xấu hơn trước. Dòng dõi dữ này cũng như vậy."
 
