@@ -55,6 +55,7 @@ Một trong các hoạt động nổi bật của ma quỉ là hiện tượng q
 
 1. Thay đổi cá tính hay nhân cách \(bao gồm cả các đặc tính về trí thông minh, ý thức đạo đức, thái độ, vẻ mặt hay dáng dấp bên ngoài\)
 2. Thay đổi vể thể chất
+
    * Có sức mạnh phi thường
    * Bị co giật, kinh phong, sùi bọt mồm
 
@@ -63,6 +64,7 @@ Một trong các hoạt động nổi bật của ma quỉ là hiện tượng q
    * Có những dấu hiệu bệnh hoạn, té ngã
 
    * Ý thức bị che mờ, không biết đau đớn
+
 3. Thay đổi về tâm trí
    * Nói nhiều thứ tiếng; hiểu những ngôn ngữ chưa biết \(một hình thức ân tứ giả mạo, đối kháng với ân tứ nói tiếng lạ trong Kinh Thánh\)
    * Có kiến văn rộng rãi
@@ -74,7 +76,16 @@ Một trong các hoạt động nổi bật của ma quỉ là hiện tượng q
 
 Tóm lại, trên đây là một số các đặc tính của ma quỉ: ma quỉ là các hữu thể thần linh không có thân xác cho nên con người không thể thấy và cảm nhận được sự hiện diện của ma quỉ bằng giác quan nhưng ma quỉ không phải là những thế lực phi nhân cách, mà có cá tính, có vị cách, có tên riêng.
 
+## Các đặc tính liên quan đến tri thức, sức mạnh và tình trạng suy đồi của ma quỉ
 
+1. Tri thức của ma quỉ
+   Theo triết gia Plato, từ "ma quỉ" phát xuất từ nguyên ngữ Hy lạp daimon nghĩa là "thông minh" hay "hiểu biết" cho thấy đặc tính quan trọng của ma quỉ là tri thức. Sự khôn ngoan và tri thức của ma quỉ vượt xa tri thức con người. Tuy nhiên Kinh Thánh cho biết ma quỉ vốn là các thiên sứ sa ngã, cho nên sự khôn ngoan của ma quỉ đã suy đồi trở thành cực kỳ gian ác \([Ê-xê-chi-ên 18:12,17](https://www.bible.com/bible/193/EZK.18.12-17.VB1925)\). Ma quỉ đã tận dụng sự khôn ngoan và trí thông minh để chống lại Ðức Chúa Trời và những ngưòi thuộc về Ngài, nhưng đồng thời ma quỉ cũng run sợ trước uy quyền tối thượng và vinh quang của Chúa \([Gia 2:19](https://www.bible.com/bible/193/JAS.2.19.VB1925)\).
+   Sự kiện người ta đi cầu hỏi đồng cốt, thầy bói để biết trước tương lai, hậu vận, ngoại trừ những trường hợp bịp bợm, nếu những tri thức đó đến từ ma quỉ thì có nhiều khả năng là sẽ đúng, vì ma quỉ có thể biết trước một phần tương lai. Sách Công vụ các sứ đồ chương 16 ghi lại trường hợp một nữ nô lệ bị quỉ Phi-tôn ám khiến cho cô có khả năng bói khoa, kiếm lợi rất nhiều cho chủ. Tri thức về tương lai của ma quỉ là một trong những khả năng hấp dẫn con người hơn hết, nhất là những người đang lo lắng cho hậu vận của chính mình hoặc của những người thân. Người Việt Nam thường hay bàn chuyện tương lai trong dịp đầu xuân. Các thanh niên thiếu nữ thường muốn biết trước về đường tình duyên, thi cử, công danh sự nghiệp; những gia đình đang có nan đề thì nghĩ đến gia đạo, công việc làm ăn trong năm mới... Vì chuyện tương lai nằm ngoài tri thức con người, nên người ta đã tìm đến với đồng cốt, thầy bói để hỏi về hậu vận mà không biết rằng thầy bói, đồng cốt, chiêm tinh gia là công cụ trong tay ma quỉ, được ma quỉ sử dụng. Họ là các trung gian để tiên đoán tương lai mà trong nhiều trường hợp rất đúng, khiến cho càng ngày càng có nhiều người tin phục. Vì thế không phải tất cả các chiêm tinh gia hay thầy bói đều là những người nói dựa hay đoán mò, hoặc bịp bợm, mà có nhiều trường hợp họ là những người có tri thức về tương lai bắt nguồn từ ma quỉ. Tuy nhiên cần nhớ rằng dù ma quỉ biết trước một phần tương lai, nhưng Ðức Chúa Trời vẫn là Ðấng cầm quyền tể trị trên mọi sự và không có điều gì xảy ra ngoài quyền tể trị đó. Ma quỉ biết trước một phần tương lai mà không biết trước tất cả tương lai. Ma quỉ biết trước tương lai nhưng không quyết định hay điều khiển tương lai. Quyền tuyệt đối vẫn hoàn toàn trong tay Ðức Chúa Trời.
+   Khi nói về tri thức và sự khôn ngoan của ma quỉ, chúng ta cũng cần nhớ rằng Sa-tan và ma quỉ đã và đang tận dụng hết mọi khả năng để lừa dối con người trong việc tìm hiểu và tiếp nhận chân lý của Ðức Chúa Trời. Chúa Giê-xu cho biết ma quỉ là kẻ nói dối và là cha sự nói dối. Ma quỉ công nhận Chúa Giê-xu là Chúa nhưng không tin cậy, không tùng phục Ngài \(Mác [1:24](https://www.bible.com/bible/193/MRK.1.24.VB1925); [5:6,7](https://www.bible.com/bible/193/MRK.5.6-7.VB1925)\). Chúng khôn khéo giấu kín tri thức về sự nhập thể \(trở thành người\) của Chúa Giê-xu để con người không biết, không tin \([I Giăng 4:1-6](https://www.bible.com/bible/193/1JN.4.1-6.VB1925)\). Ác hại nhất là chúng là kẻ cướp hạt giống đạo trong lòng những người nghe Tin Lành \([Lu-ca 8:12](https://www.bible.com/bible/193/LUK.8.12.VB1925)\).Chúng cũng đưa ra những giáo lý sai lạc \([I Ti-mô-thê 4:1-3](https://www.bible.com/bible/193/1TI.4.1-3.VB1925)\). Chúng phân biệt được những ai có dấu ấn của Ðức Chúa Trời và những ai không có \([Khải huyền 9:4](https://www.bible.com/bible/193/REV.9.4.VB1925)\). Chúng cũng biết số phận hư vong đời đời Ðức Chúa Trời dành sẵn cho chúng \([Ma-thi-ơ 8:29](https://www.bible.com/bible/193/MAT.8.29.VB1925)\).
+2. Sức mạnh của ma quỉ
+3. Tính chất suy đồi của ma quỉ
+
+Những việc ác ma-quỉ làm tổn hại con người
 
 
 
