@@ -51,5 +51,7 @@ Hội thờ Sa-tan chủ trương sống theo duy vật tối đa, và nỗ lự
 
 ## Hiện tượng quỉ ám
 
-Một trong các hoạt động nổi bật của ma quỉ là hiện tượng quỉ ám hay quỉ nhập. Kinh Thánh xác nhận có hiện tượng này và đây là tình trạng con người bị ma quỉ khống chế, kiểm soát, cuối cùng chiếm hữu \(Mác 5:1-20; 7:24-30; 9:17-29\).
+Một trong các hoạt động nổi bật của ma quỉ là hiện tượng quỉ ám hay quỉ nhập. Kinh Thánh xác nhận có hiện tượng này và đây là tình trạng con người bị ma quỉ khống chế, kiểm soát, cuối cùng chiếm hữu \(Mác [5:1-20](https://www.bible.com/bible/193/MRK.5.1-20.VB1925); [7:24-30](https://www.bible.com/bible/193/MRK.7.24-30.VB1925); [9:17-29](https://www.bible.com/bible/193/MRK.9.17-29.VB1925)\).
+
+
 
