@@ -8,9 +8,9 @@ Phúc Âm [Lu-ca 16:19-31](https://www.bible.com/bible/193/LUK.16.19-31.VB1925) 
 
 ## Ngày nay ma quỉ có còn hoạt động không?
 
-Chúng ta đã bàn đến những quan niệm sai lạc về ma quỉ mà thông thường nhất là cho rằng ma quỉ là hồn người chết hiện về, nhất là hồn những kẻ gian ác trở thành quỉ hoặc hồn những người chết oan hoặc “chưa tới số” phải chết. Tuy nhiên Kinh Thánh cho biết ma quỉ là các hữu thể thần linh, vốn là các thiên sứ của Ðức Chúa Trời nhưng vì kiêu ngạo, phản nghịch bị Ngài đuổi khỏi sự hiện diện của Chúa. Người và ma quỉ là hai tạo vật hoàn toàn khác nhau, loài nọ không thể biến thành loài kia. Có chăng là ma quỉ là thần linh với quyền phép hữu hạn, có thể xuất hiện trong hình dạng hoặc tiếng nói con người để lừa dối người sống trên trần gian.
+Chúng ta đã bàn đến những quan niệm sai lạc về ma quỉ mà thông thường nhất là cho rằng ma quỉ là hồn người chết hiện về, nhất là hồn những kẻ gian ác trở thành quỉ hoặc hồn những người chết oan hoặc "chưa tới số" phải chết. Tuy nhiên Kinh Thánh cho biết ma quỉ là các hữu thể thần linh, vốn là các thiên sứ của Ðức Chúa Trời nhưng vì kiêu ngạo, phản nghịch bị Ngài đuổi khỏi sự hiện diện của Chúa. Người và ma quỉ là hai tạo vật hoàn toàn khác nhau, loài nọ không thể biến thành loài kia. Có chăng là ma quỉ là thần linh với quyền phép hữu hạn, có thể xuất hiện trong hình dạng hoặc tiếng nói con người để lừa dối người sống trên trần gian.
 
-Vấn đề chúng ta nêu lên là hoạt động của ma quỉ trong thế giới ngày nay ra sao? Các hoạt động của ma quỉ thể hiện dưới nhiều hình thức, từ chiêu bài ”Khoa Học Huyền Bí” trong thông linh thuyết đến các dạng mê tín dị đoan thật giả lẫn lộn làm nhiều người rối trí. Các sinh hoạt thần bí xâm nhập vào đời sống hàng ngày dần dần trở thành quen mắt như một sinh hoạt xã hội: xem chỉ tay, bói bài, đoán số tử vi, xin xâm, cúng vái, đốt vàng mã... Ði xa hơn nữa là các các cuộc lên đồng, cầu cơ, đến những người chơi bùa ngãi, ếm chú. Ngay tại các nước Tây phương, các hoạt động có tính cách thần bí như gọi hồn,bói bài, đoán số mạng, dùng quả cầu pha lê, dùng con lắc không phải là hiếm. Việc thờ Sa-tan ở các nước Tây Phương cũng là một hiện tượng thần bí ghê tởm.
+Vấn đề chúng ta nêu lên là hoạt động của ma quỉ trong thế giới ngày nay ra sao? Các hoạt động của ma quỉ thể hiện dưới nhiều hình thức, từ chiêu bài "Khoa học huyền bí" trong thông linh thuyết đến các dạng mê tín dị đoan thật giả lẫn lộn làm nhiều người rối trí. Các sinh hoạt thần bí xâm nhập vào đời sống hàng ngày dần dần trở thành quen mắt như một sinh hoạt xã hội: xem chỉ tay, bói bài, đoán số tử vi, xin xâm, cúng vái, đốt vàng mã... Ði xa hơn nữa là các các cuộc lên đồng, cầu cơ, đến những người chơi bùa ngãi, ếm chú. Ngay tại các nước Tây phương, các hoạt động có tính cách thần bí như gọi hồn,bói bài, đoán số mạng, dùng quả cầu pha lê, dùng con lắc không phải là hiếm. Việc thờ Sa-tan ở các nước Tây Phương cũng là một hiện tượng thần bí ghê tởm.
 
 Hội thờ Sa-tan gần như một loại hội kín có khoảng 10 có trụ sở trên nước Mỹ và Canada với khoảng 10,000 hội viên. Phần lớn các hội viên đều gia nhập bằng thư từ, được tổ chức thành các nhóm gọi là grottos. Người đứng đầu gọi là thầy thượng tế cũng là hội viên sáng lập của hội thờ Sa-tan là Anton Szandor La Vey là người đã viết Kinh Sa-tan năm 1969, và bảo rằng đã bán ra trên 250,000 bản. Ngoài tờ tin tức hàng tháng lưu hành trong vòng các độc giả gửi mua, La Vey cũng xuất bản một cuốn sách nói về kỹ thuật bẫy bắt con người, dành cho các tay phù thủy của hội. Sau khi La Vey chết, người kế nhiệm làm thượng tế là Peter Gilmore. Hiện nay, một tổ chức khác tách ra từ hội thờ Satan lấy tên là Hội Satan Thứ Nhất với thượng tế là Lord Egan vốn là môn đệ của Anton La Vey từ thập niên 70 cũng có những hoạt động về căn bản như hội thờ Sa-tan của La Vey.
 
@@ -26,24 +26,24 @@ Có một danh sách chín điều về Sa-tan tất cả hội viên phải ch�
 8. Chấp nhận tất cả những điều vẫn thường được gọi là "tội lỗi"
 9. Sa-tan là bạn tốt nhất của hội vì đã giúp cho hội duy trì hoạt động suốt nhiều năm qua.
 
-Hội thờ Sa-tan chủ trương sống theo duy vật tối đa, và nỗ lực chống phá Cơ-đốc nhân. Triết lý sống của hội Sa-tan là tìm lạc thú vì vậy hội Sa-tan đã tận dụng và lợi dụng mọi thú vui trần gian cung cấp làm phương tiện nô lệ hóa hội viên của chúng ngay cả bằng những nghi lễ đầy tính chất dâm ô mà chỉ các hội viên mới được tham dự và không được phép tiết lộ cho những người không phải là hội viên.
+Hội thờ Sa-tan chủ trương sống theo duy vật tối đa, và nỗ lực chống phá Cơ Đốc nhân. Triết lý sống của hội Sa-tan là tìm lạc thú vì vậy hội Sa-tan đã tận dụng và lợi dụng mọi thú vui trần gian cung cấp làm phương tiện nô lệ hóa hội viên của chúng ngay cả bằng những nghi lễ đầy tính chất dâm ô mà chỉ các hội viên mới được tham dự và không được phép tiết lộ cho những người không phải là hội viên.
 
 ## Đặc tính của ma quỉ
 
-1. Ma quỉ là thần linh không có thân xác hữu hình \(Ê-phê-sô 6:12\)
-2. Nguyên thủy, ma quỉ được tương giao với Ðức Chúa Trời \(Giu-đe 1:6\)
-3. Ma quỉ khá đông \(Mác 5:8,9\)
-4. Ma quỉ có tổ chức \(Ma-thi-ơ 12:24\)
-5. Ma quỉ có quyền lực siêu nhiên, làm được những việc quyền năng làm các dấu lạ \(Khải huyền 16:14\)
-6. Ma quỉ biết Ðức Chúa Trời \(Ma-thi-ơ 8:29\)
-7. Ma quỉ được phép đi dông dài trên đất để bách hại, ức hiếp con người \(Ma-thi-ơ 12:43-45\)
-8. Ma quỉ có thể gây nên bịnh tật \(Ma-thi-ơ 9:32,33\)
-9. Ma quỉ có thể chiếm hữu và kiểm soát thú vật \(Mác 5:13\)
-10. Ma quỉ có thể chiếm hữu và kiểm soát con người \(Lu-ca 8:2\)
-11. Ma quỉ đôi khi gây nên tình trạng xáo trộn tâm trí, điên loạn \(Mác 5:2,3,5\)
-12. Ma quỉ biết Chúa Cứu Thế Giê-xu là Ðức Chúa Trời \(Mác 1:23,24\)
+1. Ma quỉ là thần linh không có thân xác hữu hình \([Ê-phê-sô 6:12](https://www.bible.com/bible/193/EPH.6.12.VB1925)\)
+2. Nguyên thủy, ma quỉ được tương giao với Ðức Chúa Trời \([Giu-đe 1:6](https://www.bible.com/bible/193/JUD.1.6.VB1925)\)
+3. Ma quỉ khá đông \([Mác 5:8,9](https://www.bible.com/bible/193/MRK.5.8-9.VB1925)\)
+4. Ma quỉ có tổ chức \([Ma-thi-ơ 12:24](https://www.bible.com/bible/193/MAT.12.24.VB1925)\)
+5. Ma quỉ có quyền lực siêu nhiên, làm được những việc quyền năng làm các dấu lạ \([Khải huyền 16:14](https://www.bible.com/bible/193/REV.16.14.VB1925)\)
+6. Ma quỉ biết Ðức Chúa Trời \([Ma-thi-ơ 8:29](https://www.bible.com/bible/193/MAT.8.29.VB1925)\)
+7. Ma quỉ được phép đi dông dài trên đất để bách hại, ức hiếp con người \([Ma-thi-ơ 12:43-45](https://www.bible.com/bible/193/MAT.12.43-45.VB1925)\)
+8. Ma quỉ có thể gây nên bịnh tật \([Ma-thi-ơ 9:32,33](https://www.bible.com/bible/193/MAT.9.32-33.VB1925)\)
+9. Ma quỉ có thể chiếm hữu và kiểm soát thú vật \([Mác 5:13](https://www.bible.com/bible/193/MRK.5.13.VB1925)\)
+10. Ma quỉ có thể chiếm hữu và kiểm soát con người \([Lu-ca 8:2](https://www.bible.com/bible/193/LUK.8.2.VB1925)\)
+11. Ma quỉ đôi khi gây nên tình trạng xáo trộn tâm trí, điên loạn \([Mác 5:2,3,5](https://www.bible.com/bible/193/MRK.5.VB1925)\)
+12. Ma quỉ biết Chúa Cứu Thế Giê-xu là Ðức Chúa Trời \([Mác 1:23,24](https://www.bible.com/bible/193/MRK.1.23-24.VB1925)\)
 13. Ma quỉ run sợ trước Chúa \(Gia-cơ 2:19\)
-14. Ma quỉ dạy các giáo lý sai lạc \(I Ti-mo-thê 4:1\)
+14. Ma quỉ dạy các giáo lý sai lạc \(I Ti-mô-thê 4:1\)
 15. Ma quỉ chống lại dân Chúa \(Ê-phê-sô 6:12\)
 16. Ma quỉ cố sức chống phá Nước Trời \(I Phi-e-rơ 5:8\)
 17. Có khi Ðức Chúa Trời sử dụng các hành động của ma quỉ để làm thành các mục tiêu của Ngài \(Các quan xét 9:23\)
