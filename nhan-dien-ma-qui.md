@@ -42,12 +42,12 @@ Hội thờ Sa-tan chủ trương sống theo duy vật tối đa, và nỗ lự
 10. Ma quỉ có thể chiếm hữu và kiểm soát con người \([Lu-ca 8:2](https://www.bible.com/bible/193/LUK.8.2.VB1925)\)
 11. Ma quỉ đôi khi gây nên tình trạng xáo trộn tâm trí, điên loạn \([Mác 5:2,3,5](https://www.bible.com/bible/193/MRK.5.VB1925)\)
 12. Ma quỉ biết Chúa Cứu Thế Giê-xu là Ðức Chúa Trời \([Mác 1:23,24](https://www.bible.com/bible/193/MRK.1.23-24.VB1925)\)
-13. Ma quỉ run sợ trước Chúa \(Gia-cơ 2:19\)
-14. Ma quỉ dạy các giáo lý sai lạc \(I Ti-mô-thê 4:1\)
-15. Ma quỉ chống lại dân Chúa \(Ê-phê-sô 6:12\)
-16. Ma quỉ cố sức chống phá Nước Trời \(I Phi-e-rơ 5:8\)
-17. Có khi Ðức Chúa Trời sử dụng các hành động của ma quỉ để làm thành các mục tiêu của Ngài \(Các quan xét 9:23\)
-18. Ðức Chúa Trời sẽ phán xét ma quỉ trong cuộc phán xét ngày cuối cùng \(II Phi-e-rơ 2:4\)
+13. Ma quỉ run sợ trước Chúa \([Gia-cơ 2:19](https://www.bible.com/bible/193/JAS.2.19.VB1925)\)
+14. Ma quỉ dạy các giáo lý sai lạc \([I Ti-mô-thê 4:1](https://www.bible.com/bible/193/1TI.4.1.VB1925)\)
+15. Ma quỉ chống lại dân Chúa \([Ê-phê-sô 6:12](https://www.bible.com/bible/193/EPH.6.12.VB1925)\)
+16. Ma quỉ cố sức chống phá Nước Trời \([I Phi-e-rơ 5:8](https://www.bible.com/bible/193/1PE.5.8.VB1925)\)
+17. Có khi Ðức Chúa Trời sử dụng các hành động của ma quỉ để làm thành các mục tiêu của Ngài \([Các quan xét 9:23](https://www.bible.com/bible/193/JDG.9.23.VB1925)\)
+18. Ðức Chúa Trời sẽ phán xét ma quỉ trong cuộc phán xét ngày cuối cùng \([II Phi-e-rơ 2:4](https://www.bible.com/bible/193/2PE.2.4.VB1925)\)
 
 ## Hiện tượng quỉ ám
 
