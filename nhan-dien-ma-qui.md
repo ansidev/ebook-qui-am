@@ -51,7 +51,30 @@ Hội thờ Sa-tan chủ trương sống theo duy vật tối đa, và nỗ lự
 
 ## Hiện tượng quỉ ám
 
-Một trong các hoạt động nổi bật của ma quỉ là hiện tượng quỉ ám hay quỉ nhập. Kinh Thánh xác nhận có hiện tượng này và đây là tình trạng con người bị ma quỉ khống chế, kiểm soát, cuối cùng chiếm hữu \(Mác [5:1-20](https://www.bible.com/bible/193/MRK.5.1-20.VB1925); [7:24-30](https://www.bible.com/bible/193/MRK.7.24-30.VB1925); [9:17-29](https://www.bible.com/bible/193/MRK.9.17-29.VB1925)\).
+Một trong các hoạt động nổi bật của ma quỉ là hiện tượng quỉ ám hay quỉ nhập. Kinh Thánh xác nhận có hiện tượng này và đây là tình trạng con người bị ma quỉ khống chế, kiểm soát, cuối cùng chiếm hữu \(Mác [5:1-20](https://www.bible.com/bible/193/MRK.5.1-20.VB1925); [7:24-30](https://www.bible.com/bible/193/MRK.7.24-30.VB1925); [9:17-29](https://www.bible.com/bible/193/MRK.9.17-29.VB1925)\). Dựa trên các trường hợp bị quỉ ám có ghi trong Tân ước,chúng ta có thể phác họa những đặc tính của hiện tượng quỉ ám như sau:
+
+1. Thay đổi cá tính hay nhân cách \(bao gồm cả các đặc tính về trí thông minh, ý thức đạo đức, thái độ, vẻ mặt hay dáng dấp bên ngoài\)
+2. Thay đổi vể thể chất
+   * Có sức mạnh phi thường
+   * Bị co giật, kinh phong, sùi bọt mồm
+
+   * Giọng nói thay đổi
+
+   * Có những dấu hiệu bệnh hoạn, té ngã
+
+   * Ý thức bị che mờ, không biết đau đớn
+3. Thay đổi về tâm trí
+   * Nói nhiều thứ tiếng; hiểu những ngôn ngữ chưa biết \(một hình thức ân tứ giả mạo, đối kháng với ân tứ nói tiếng lạ trong Kinh Thánh\)
+   * Có kiến văn rộng rãi
+   * Có năng lực ma thuật và siêu linh như biết hay nhìn thấu suốt sự vật \(clairvoyance\), khả năng thần giao cách cảm và tiên đoán tương lai
+   * Có phản ứng sợ hãi Chúa Cứu Thế Giê-xu; phạm thượng nhưng với lòng ân hận
+   * Bị tác động bởi sự cầu nguyện
+4. Những biến đổi tâm linh
+5. Có thể được giải phóng trong danh Chúa Giê-xu
+
+Tóm lại, trên đây là một số các đặc tính của ma quỉ: ma quỉ là các hữu thể thần linh không có thân xác cho nên con người không thể thấy và cảm nhận được sự hiện diện của ma quỉ bằng giác quan nhưng ma quỉ không phải là những thế lực phi nhân cách, mà có cá tính, có vị cách, có tên riêng.
+
+
 
 
 
